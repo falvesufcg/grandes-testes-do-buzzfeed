@@ -33,6 +33,10 @@ https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-a
 * 📝 Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
 https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
 
+* 📝 Se você fosse uma cadeira, quão confortável você seria?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-cadeira-quao-confortavel-voce-seria
+
 
 ## Quem é você
 
@@ -119,9 +123,12 @@ https://www.buzzfeed.com/br/rafaelcapanema/de-quantas-comidas-polemicas-voce-gos
 * 🥑 Qual comida com nome de gente você é?
 
 https://www.buzzfeed.com/br/saadmatheus/teste-qual-comida-com-nome-de-gente-voce-e
+  
+* 🧁 Você come essas comidas do mesmo jeito que essas pessoas ou você é normal?
 
+https://www.buzzfeed.com/br/spenceralthouse/voce-come-essas-comidas-do-mesmo-jeito-que-essas-pessoas-ou
 
 ## Música
 
-* 🇪🇬 Você sabe cantar Faraó inteira?
+* 🎤 Você sabe cantar Faraó inteira?
 https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao
